@@ -4,8 +4,10 @@ Fellatio's amazin', make grilled cheese for you the best
 Major cult figure, I'm the fresh David Koresh
 Soldiers all in gators, new Mercedes for cadets
 Balmain uniform, you know Donda designed the vest
+
 Double M, that be the Army, better yet, the Navy
 Baby seen me in that Wraith, wanna have my baby
+
 All I wanted was a hundred million dollars and a bad bitch
 Now I want two hundred and ménage in my palace
 Walkin' out the jeweler with no mothafuckin' balance
@@ -15,3 +17,10 @@ Rims on my Ferrari, my bitch said that I was childish
 When we fucked again, she told me "That was just some foul shit"
 I walk into the room, you can even hear all the silence
 
+Keys 
+- Piano
+- Kilos - drugs
+
+All I wanted was a hundred millions dollars and a bad bitch
+Falatio is a amazing then she go and make a sand which
+3d printing figures for funcause im childish
