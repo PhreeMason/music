@@ -1,6 +1,4 @@
-// syllables come from vowels and double same consanance
-
-
+// why does this work with the word 'people'
 function syllablesInAWord(word: string) {
     word = word.toLowerCase();
     if (word.length <= 3) return 1;
