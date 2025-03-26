@@ -91,5 +91,22 @@ Rims on my Ferrari, my bitch said that I was childish
 'Til I fuck a girl, that girl tweeted that I was stylish
 When we fucked again, she told me "That was just some foul shit"
 I walk into the room, you can even hear all the silence
+
+Never touched a crack pipe cause i know that shit gonna be good. 
+Laundry on the bed, at night i move it ovah to the couch
+Vaccuum up the litter that my cat left all through the house
+My shorty breast so perky i can see her nipples through her blouse 
+Throat me in the whip cause I couldnt wait to get in the house.
+Tie her up and choke her then I get behind and dig her out
+Enough green to cover Everest and I'm looking for a bigger mount.
+
+Sleep on me thats a tough decision 
+Number one super star is the mission
+I know she thinking damn i miss him
+Dime pieces only we not Lincoln
+Lock in on the court, highest scoring
+That’s Carter, Kobe, Scotty Pippin
+He lifted me up, my hands to heaven
+I stay ten toes down with the Brethren
 `
 ))
